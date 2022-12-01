@@ -25,6 +25,9 @@ E-mail:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;4218820@gmail.com
 > * Создания резюме на Git по вашим Тех Заданиям.
 > * Индивидуальный, творческий подход к каждому клиенту. 
 > * Работа на отличный результат. 
+----------
+> **Примеры работ ретушь:**
+<br>![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_0456.jpg)
 
 
 
