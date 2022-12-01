@@ -5,7 +5,7 @@
            
 -------------------     ----------------------------
 * E-mail:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;4218820@gmail.com
-* Telegram: &nbsp; @ASXXA &nbsp; предпочтительный вид связи.
+* Telegram: &nbsp;[@ASXXA](https://t.me/ASXXA) &nbsp; предпочтительный вид связи.
 * City:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Ростов-На-Дону&nbsp;&nbsp;[![Header](https://github.com/RNDASX/portfolio/blob/main/jpg/karta.jpg)](https://yandex.ru/maps/geo/rostov_na_donu/53166035/?from=tabbar&ll=39.790424%2C47.232587&source=serp_navig&z=11)
 -------------------     ----------------------------
 
