@@ -1,8 +1,5 @@
  
-## Александр
-
-
-![Header](https://github.com/RNDASX/portfolio/blob/main/ava/IMG_0649%20(1).jpg)
+## Александр&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![Header](https://github.com/RNDASX/portfolio/blob/main/ava/IMG_0649%20(1).jpg) 
  
            
 -------------------     ----------------------------
