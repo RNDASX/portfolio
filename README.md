@@ -34,7 +34,7 @@
 Больше примеров можно скачать и посмотреть [тут](https://github.com/RNDASX/portfolio/tree/main/Portfolio%20retouching)<br>
 
 ----------
-> **Примеры YouTube каналов и превью:**<br> Канал для любителей Музыки >  [I lIKE MUSIC](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для медитации > [Soothing meditation for sleep](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для детей > [hamster family](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)
+> **Примеры YouTube каналов и превью:**<br> Канал для любителей Музыки >  [I lIKE MUSIC](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для медитации > [Soothing meditation for sleep](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для детей > [hamster family](https://www.youtube.com/channel/UCGCsIyhOY0QMzLEJZCF7Shw)
 
 
 
