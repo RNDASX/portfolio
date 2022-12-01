@@ -2,7 +2,7 @@
 ## Александр
 
 
-![Header](https://github.com/asx999/resume/blob/master/img/IMG_0649.jpg)
+![Header](https://github.com/RNDASX/portfolio/blob/main/ava/IMG_0649%20(1).jpg)
  
            
 -------------------     ----------------------------
