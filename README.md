@@ -24,17 +24,17 @@
 > * Индивидуальный, творческий подход к каждому клиенту. 
 > * Работа на отличный результат. 
 ----------
-> #### Примеры работ ретушь:<br>
+> **Примеры работ ретушь:**<br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_0456.jpg)<br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_0804.jpg)<br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_4414.jpg)<br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_0218.jpg)<br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_1142.jpg)<br>
 
-
 Больше примеров можно скачать и посмотреть [тут](https://github.com/RNDASX/portfolio/tree/main/Portfolio%20retouching)<br>
 
-
+----------
+> **Примеры YouTube каналов и превью:**<br> Канал для любителей Музыки >  [I lIKE MUSIC](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для медитации > [Soothing meditation for sleep](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для детей > [hamster family](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)
 
 
 
