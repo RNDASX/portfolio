@@ -1,10 +1,7 @@
  
-## Александр&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![Header](https://github.com/RNDASX/portfolio/blob/main/ava/IMG_0649%20(1).jpg) 
- 
-           
--------------------     ----------------------------
-E-mail:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;4218820@gmail.com
+## Александр<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![Header](https://github.com/RNDASX/portfolio/blob/main/ava/IMG_0649%20(1).jpg)&nbsp;&nbsp;&nbsp;E-mail:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;4218820@gmail.com
 <br>Telegram: &nbsp; @ASXXA &nbsp; предпочтительный вид связи.
+ 
 -------------------     ----------------------------
 
 > **Занятость:** &nbsp;Удаленная работа/ по договоренности.
