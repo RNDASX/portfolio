@@ -12,7 +12,7 @@
 > **Занятость:** &nbsp;Удаленная работа/ по договоренности.
 ----------
  > **Профессиональные знания:**
-> * Работаю в Photoshop,Lightroom,Premiere Pro,Adobe Audition,Final Cut Pro, и многих других приложениях для дизайна, видео-монтажа и графики.<br>
+> * Работаю в Photoshop,Lightroom,CorelDRAW,Premiere Pro,Adobe Audition,Final Cut Pro, и многих других приложениях для дизайна, видео-монтажа и графики.<br>
 > * Умение находить оригинальные решения. 
 
 
@@ -27,24 +27,37 @@
 > * Индивидуальный, творческий подход к каждому клиенту (все ограничивается только нашей фантазией). :wink: 
 > * Работа на отличный результат. 
 ----------
-> **Примеры работ ретушь:**<br>
+> **Примеры работ ретушь:**<br><br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_0456.jpg)<br>
-> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_0804.jpg)<br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_4414.jpg)<br>
-> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_0218.jpg)<br>
-> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Collage%20before%20and%20after)%20%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%20%D0%B4%D0%BE-%D0%BF%D0%BE%D1%81%D0%BB%D0%B5/IMG_1142.jpg)<br>
-> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/1.jpg)<br>
-> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/2.jpg)<br>
+
 
 Больше примеров можно скачать и посмотреть [тут](https://github.com/RNDASX/portfolio/tree/main/Portfolio%20retouching)<br>
 
-----------
 
-> **Отрисовка печати:**<br>
+> **Обработка дети:**<br><br>
+> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/1.jpg)<br>
+> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/2.jpg)<br>
+
+
+> **К 23 Февраля:**<br><br>
+> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%D0%B8(%D0%A1ollages)/8.jpg)<br>
+> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%D0%B8(%D0%A1ollages)/5.jpg)<br>
+
+Больше примеров можно скачать и посмотреть [тут](https://github.com/RNDASX/portfolio/tree/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/%D0%9A%D0%BE%D0%BB%D0%BB%D0%B0%D0%B6%D0%B8(%D0%A1ollages))<br>
+
+> **Открытки 23 Февраля:**<br><br>
+> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/%D0%9E%D1%82%D0%BA%D1%80%D1%8B%D1%82%D0%BA%D0%B8(Postcards)/4%D0%B0.jpg)<br>
+> ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/%D0%9E%D1%82%D0%BA%D1%80%D1%8B%D1%82%D0%BA%D0%B8(Postcards)/2%D0%B0.jpg)<br>
+
+Больше примеров можно скачать и посмотреть [тут](https://github.com/RNDASX/portfolio/tree/main/Portfolio%20retouching/(Processing%20kids)%D0%9E%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B4%D0%B5%D1%82%D0%B8/%D0%9E%D1%82%D0%BA%D1%80%D1%8B%D1%82%D0%BA%D0%B8(Postcards))<br>
+
+
+> **Отрисовка печати:**<br><br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Print%20rendering)%D0%9E%D1%82%D1%80%D0%B8%D1%81%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%BF%D0%B5%D1%87%D0%B0%D1%82%D0%B8/%D0%9F%D0%B5%D1%87%D0%B0%D1%82%D1%8C%20%D0%98%D0%9F.jpg)<br>
 > ![Collage](https://github.com/RNDASX/portfolio/blob/main/Portfolio%20retouching/(Print%20rendering)%D0%9E%D1%82%D1%80%D0%B8%D1%81%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%BF%D0%B5%D1%87%D0%B0%D1%82%D0%B8/%D0%9F%D0%B5%D1%87%D0%B0%D1%82%D1%8C%20%D1%81%20%D1%80%D0%B8%D1%81%D1%83%D0%BD%D0%BA%D0%BE%D0%BC%20%D0%9E%D0%9E%D0%9E.jpg)<br>
 
-
+----------
 
 
 > **Примеры <YouTube каналов> <превью> <монтажа видео>:**<br> Канал для любителей Музыки >  [I lIKE MUSIC](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для медитации > [Soothing meditation for sleep](https://www.youtube.com/channel/UCYUXzEkpSiU0JLSPPhIr3Ew)<br> Канал для детей > [hamster family](https://www.youtube.com/channel/UCGCsIyhOY0QMzLEJZCF7Shw)<br>
